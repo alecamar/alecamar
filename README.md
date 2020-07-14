@@ -1,4 +1,4 @@
-### Portuguese below
+### English
 
 I am currently an Adjunct Professor at the Federal University of São Carlos, at the Center for Nature Sciences (CCN), on the Lagoa do Sino campus, where I teach the Biological Sciences, and the Environmental and Agronomic Engineering undergraduate courses. I am the coordinator of NEEDS (Spatial Ecology and Sustainable Development Study Group) and I am a permanent professor in the Graduate Program in Environmental Sciences at UFSCar.
 
