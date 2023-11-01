@@ -6,6 +6,6 @@ Please, visit my website at www.needs.ufscar.br for more information.
 
 ### Portuguese
 
-Atualmente sou Professor Adjunto C - II da Universidade Federal de São Carlos, no Centro de Ciências da Natureza (CCN), no campus Lagoa do Sino, onde sou docente dos cursos de Ciências Biológicas, Engenharia Ambiental e Engenharia Agronômica. Sou o coordenador do NEEDS (Núcleo de Estudos em Ecologia Espacial e Desenvolvimento Sustentável) e sou professor permanente nos Programas de Pós-Graduação em Ciências Ambientais (PPGCAm/UFSCar) e de Conservação de Fauna, ambos da UFSCar (PPGCFau/UFSCar).
+Atualmente sou Professor Adjunto C - II da Universidade Federal de São Carlos, no Centro de Ciências da Natureza (CCN), no campus Lagoa do Sino, onde sou docente dos cursos de Ciências Biológicas, Engenharia Ambiental e Engenharia Agronômica. Sou coordenador do NEEDS (Núcleo de Estudos em Ecologia Espacial e Desenvolvimento Sustentável) e sou professor permanente nos Programas de Pós-Graduação em Ciências Ambientais (PPGCAm/UFSCar) e de Conservação de Fauna, ambos da UFSCar (PPGCFau/UFSCar).
 
 Visite a página do nosso grupo de pesquisa em www.needs.ufscar.br para maiores informações.
